@@ -23,6 +23,7 @@ Sempre em busca de aprendizado e inovação. Atualmente, graduando em **Gestão 
 
 📫 **Como me encontrar?**  
 📩 **E-mail:** neycardozo@outlook.com 
+
 💼 **LinkedIn:**(https://www.linkedin.com/in/neycardozo/)
 
 Sempre aberto a colaborações e novas oportunidades! Vamos trocar ideias e construir soluções inovadoras juntos.  
