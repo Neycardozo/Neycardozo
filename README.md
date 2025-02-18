@@ -1,4 +1,4 @@
-🎯 Profissional de TI | Gestão da Tecnologia da Informação | Data Science
+Guaduando em Gestão da Tecnologia da Informação | Data Science
 
 Sempre em busca de aprendizado e inovação. Atualmente, graduando em **Gestão da Tecnologia da Informação** e me aprofundo de forma autodidata em **Data Science**, explorando **Python** como principal ferramenta para análise e modelagem de dados.  
 
